@@ -23,3 +23,10 @@ I remember my last night at my dorm, we played a board game and that was very in
 
 ![Board Game](board_game.JPEG)
 
+I went to another campus in order to have my exiting documents stamped. And it took me 2 days to complete. After I was on the train going back to my home, I know that my university is gone.
+
+![On a levaing train](train.png)
+
+## From the start
+
+I arrived on the station at around 10 P.M.. It was my longest trip and it took me 7 hours from my hometown to the city where my university was in. 
