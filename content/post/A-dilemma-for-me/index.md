@@ -3,7 +3,7 @@ title: A Dilemma for Me[Unfinished]
 description: Wisdom that I can attach on my choice decision
 slug: 
     - Life
-date: 2023-11-29 00:00:00+0000
+date: 2023-11-28 00:00:00+0000
 image: cover.jpeg
 categories:
     - Experience 
