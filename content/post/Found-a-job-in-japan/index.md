@@ -11,7 +11,7 @@ tags:
     - Work
 ---
 
-The Cover photo was takn in Kamakura, when I was just walking around that city with my friend.
+The Cover photo was taken in Kamakura, when I was just walking around that city with my friend.
 
 ## Outcomes & Failures
 
