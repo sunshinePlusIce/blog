@@ -48,9 +48,9 @@ It makes me wonder the reason why. The stucture of the industry is just out of t
 
 When I am a literally totally loser and it's only Japan that I can go. Japan is a like a cradle for those people who are down. It's true that you got not that well paid comparing to other major developed countries, but Japan will make sure at least everything it not too bad.
 
-It reminds it of The Black Nights.
+It reminds me of The Black Knights.
 
-![The Black Nights](The_Black_Knights.webp)
+![The Black Knights](The_Black_Knights.webp)
 
 as that goes:
 
