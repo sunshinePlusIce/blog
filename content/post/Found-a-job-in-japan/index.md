@@ -38,9 +38,9 @@ There was my only offline interview conducted in their company build, which they
 
 There's a undeniable fact that many Chinese SES company in Japan they're actually breaking the laws in Japan. For example, the mostly talked, you should be payed fully if you have no active current projects, or gennba. But as far as I know, 99% existing Chinese SES companys do not obey the laws.
 
-Maybe some people may complain that it's Chinese company that do break the laws. But I don't think so. Because in such a market, there're companies they're cutting their costs by doing so, it will push other companies to do as they do. It's a negative circulation. As a matter of fact one Taiwanese company that I contacted is doing so, either, which is paying 100,000 JPY to those employees who don't have project to get involved in. 100,000J JPY, it can only afford the rent for a small 1K apartment and all the fees such as electricity, water and gas, that'cool, huh? If the government still keep its stillness, things will getting worse and worse or they're justing sitting there as nothing is taking place?
-
 It makes me wonder the reason why. The stucture of the industry is just out of the line. Japan is not a country which shared the development of the big boom of information and Internet. It was assisting on its more than strong manufacturing basis and all the later-coming IT industries are working to serve the manufacturing business. That's why most of the IT companies in Japan are to B2B not B2C. Because it has to attach to the big giant manufacturers to survive and almost all the clients are attached to this mega manufacturers.
+
+Maybe some people may complain that it's Chinese company that do break the laws. But I don't think so. Because in such a market, there're companies they're cutting their costs by doing so, it will push other companies to do as they do. It's a negative circulation. As a matter of fact one Taiwanese company that I contacted is doing so, either, which is paying 100,000 JPY to those employees who don't have project to get involved in. 100,000J JPY, it can only afford the rent for a small 1K apartment and all the fees such as electricity, water and gas, that'cool, huh? If the government still keep its stillness, things will getting worse and worse or they're justing sitting there as nothing is taking place?
 
 ### Japan the Black Knights
 
